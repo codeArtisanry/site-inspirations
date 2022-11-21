@@ -63,3 +63,13 @@
 
 ![image](https://user-images.githubusercontent.com/87218847/202986105-e9774888-6e47-4359-9710-f586e35f119e.png)
 <div align="center">  https://wolvesart.fr/ </div>
+
+---
+---
+![image](https://user-images.githubusercontent.com/87218847/202986966-d45f59bd-048c-4a6d-8b21-2dccba1c4a38.png)
+<div align="center"> https://www.humanastudio.com/ </div>
+
+---
+---
+![image](https://user-images.githubusercontent.com/87218847/202997389-b49d6bed-8d60-4080-b5f1-d8690b52b88c.png)
+<div align="center"> https://bradguesman.com/ </div>
