@@ -86,3 +86,26 @@
 
 ---
 ---
+
+---
+---
+![Screenshot from 2023-04-03 12-27-16](https://user-images.githubusercontent.com/87218847/229434175-6b7aeeef-13dc-46d2-af26-82d651d1acc7.png)
+<div align="center"> https://zero.tech/ </div>
+
+---
+---
+![image](https://user-images.githubusercontent.com/87218847/229435273-2a71c28f-5aba-4776-a8d4-72c688e262dd.png)
+<div align="center"> https://qu.ai/ </div>
+
+---
+---
+![image](https://user-images.githubusercontent.com/87218847/229435899-ace61769-e5ac-437e-9e5d-4aec9f82e347.png)
+<div align="center"> https://www.silena.com/en/ </div>
+
+---
+---
+![image](https://user-images.githubusercontent.com/87218847/229436506-2b4c8bb2-7f45-4971-926d-319deda82f9d.png)
+<div align="center"> https://tersa.co/ </div>
+
+---
+---
